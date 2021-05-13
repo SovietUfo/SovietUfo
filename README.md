@@ -1,4 +1,4 @@
-# yo
-im a 14 year old swag yolo gamer who sucks at coding
+i always say just "morning" instead of "good morning" because if it were a good morning i'd be fishing
 
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=SovietUfo&theme=synthwave)](https://github.com/anuraghazra/github-readme-stats)
+![image](https://user-images.githubusercontent.com/77695657/118171097-38889280-b42b-11eb-93e1-064040b78c17.png)
+
